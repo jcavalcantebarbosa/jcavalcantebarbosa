@@ -1,6 +1,6 @@
 ## Saudações, sou José Cavalcante Barbosa Neto 🖖
   
-Advogado em transição para o mundo Dev & Tech 💻🧑🏻‍💻​<br>
+Bacharel em Direito em transição para o mundo Dev & Tech 💻🧑🏻‍💻​<br>
 Entusiasta de Finanças e Musculação 📈💪🏼​<br>
 Apaixonado por ​Python 🐍​, ​ Redes​ 📡 e Café ☕  
 Estudante de Redes de Computadores @IFPA_Castanhal 📡  
