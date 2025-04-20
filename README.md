@@ -1,4 +1,4 @@
-## # Saudações, sou José Cavalcante Barbosa Neto 🖖
+## Saudações, sou José Cavalcante Barbosa Neto 🖖
   
 Advogado em transição para o mundo Dev & Tech 💻🧑🏻‍💻​<br>
 Entusiasta de Finanças e Musculação 📈💪🏼​<br>
