@@ -5,7 +5,7 @@ Entusiasta de Finanças e Musculação 📈💪🏼​<br>
 Apaixonado por ​Python 🐍​, ​ Redes​ 📡 e Café ☕  
 Estudante de Redes de Computadores @IFPA_Castanhal 📡  
 Entre linhas de código e séries de treino, estou sempre em busca de evolução. A cada desafio vencido, me torno mais forte – tanto no trabalho quanto na vida 🧑🏻‍💻💪🏼  
-Poliglota 🌍 | Sou fluente em Português 🇧🇷 e tenho um Inglês  avançado(B2) e agora estou Estudando Alemão 🇩🇪(A1) e Francês 🇫🇷(A1)
+Poliglota 🌍 | Sou fluente em Português 🇧🇷 e tenho um Inglês 🇺🇸 avançado(B2) e agora estou Estudando Alemão 🇩🇪 (A1) e Francês 🇫🇷 (A1)
 
 ## 🚀 Atualmente aprendendo:
 - Redes de Computadores
